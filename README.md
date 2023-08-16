@@ -15,6 +15,6 @@ WIP
 ## Contact
 
 - Email: mjoshi855@gmail.com
-- LinkedIn: [Manasi Joshi LinkedIn Profile](https://www.linkedin.com/in/manasi-joshi-92701b59))
+- LinkedIn: [Manasi Joshi LinkedIn Profile](https://www.linkedin.com/in/manasi-joshi-92701b59)
 
 
